@@ -1,16 +1,15 @@
-### Hi there 👋
+### Nhận Định Bóng Đá Ý 
 
-<!--
-**nhandinhbongdaycom/nhandinhbongdaycom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nhận Định Bóng Đá Ý - Cập nhật dữ liệu bóng đá Ý mới nhất, bao gồm nhận định bóng đá Ý, lịch thi đấu bóng đá Ý và kết quả bóng đá Ý
 
-Here are some ideas to get you started:
+- Địa chỉ: 75 Nguyễn Sỹ Sách, Phường 15, Tân Bình, Thành phố Hồ Chí Minh, Việt Nam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SDT: 0810219538
+
+Mùa 2022/23, Mourinho đã giúp đội chủ sân Olimpico lọt vào chung kết Europa League nhưng lại phải chịu thất bại trước “ông vua C2” Sevilla và đành bùi ngùi ở ngôi á quân. Được biết, lãnh đạo Roma cho rằng, hiện tại chỉ mang Mourinho là phù hợp để dẫn dắt CLB. bởi thế, dù giao kèo có Mourinho còn hạn hai năm nhưng Roma vẫn thương lượng gia hạn hợp đồng tới tháng 6/2026
+
+https://nhandinhbongday.com/
+
+https://www.pinterest.com/nhandinhbongdaycom/
+
+https://vimeo.com/user202450704
